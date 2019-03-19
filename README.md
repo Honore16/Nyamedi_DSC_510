@@ -1,1 +1,0 @@
-# Nyamedi_DSC_510
